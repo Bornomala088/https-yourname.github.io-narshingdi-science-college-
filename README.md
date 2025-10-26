@@ -1,1 +1,1 @@
-# https-yourname.github.io-narshingdi-science-college-
+narshingdi-science-college
